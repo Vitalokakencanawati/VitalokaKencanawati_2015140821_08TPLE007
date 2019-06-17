@@ -1,0 +1,2 @@
+# VitalokaKencanawati_2015140821_08TPLE007
+Simple Additive Weighting
